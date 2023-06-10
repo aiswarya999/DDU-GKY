@@ -1,3 +1,0 @@
-# DDU-GKY
-
-## Welcome
